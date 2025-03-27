@@ -8,7 +8,7 @@ Equpment: 1x Vok oder Große Pfanne
 - 400g Frische Gnocchis
 - 400g Hackfleisch
 - etwa 250ml Passierte Tomaten mit Basilikum
-- 0,5x Rote Ziwebel mittelgroß
+- 0,5x Rote Zwiebel mittelgroß
 - 0,5x Paprika (Rot, Ausgewachsen)
 - 2 Stangne Frühlingszwiebeln 
 - 4x Knoblauchzehen (Frisch)
